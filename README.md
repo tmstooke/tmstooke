@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tmstooke
+- 👀 I’m interested in enterprise digital transformations
+- 🌱 I’m always learning
+- 💞️ I’m looking to collaborate on exciting opportunities
+- 📫 How to reach me? iykyk
